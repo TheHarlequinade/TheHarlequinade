@@ -9,7 +9,7 @@ Use our pony to refer to us by name, there are variations we also accept.
 
 He / It pronouns . We are also a 21+ person .
 
-<img height="300" alt="image" src="https://github.com/user-attachments/assets/ab0dfd46-e38a-44d9-b4a9-5dd177e1a5ad" />
+<p align="center"><img height="400" alt="image" src="https://github.com/user-attachments/assets/ab0dfd46-e38a-44d9-b4a9-5dd177e1a5ad" /></p>
 
 
 # TO NOTE
