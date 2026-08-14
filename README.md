@@ -19,6 +19,8 @@ As Harlequin : More responsive and playful if I'm not busy . I like to annoy Pie
 
 - We enjoy other fandom spaces like Identity V and several Roblox games !
 - For TFC we don't mind sitting as a ship or platonic . Greenapple is very welcome as well . 🍏
+- Our interest in TFC is more prior to the player's impact, as we do not care for the 'active story', rather the pre-established dynamics as the background lingers on the Harlequinade . We've always adored the Pierrot and the Harlequin for years !
+- Overall media discussion is something we love partaking in, critical of our interests .
 
 We're generally cuddle, hide, and kiss free, platonically ! Sitting with others brings joy .
 - If we're sitting with someone who has done bad things, do tell us ! We don't know people on any personal or community levels .
