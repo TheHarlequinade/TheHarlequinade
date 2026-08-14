@@ -10,7 +10,7 @@ Use our pony to refer to us by name, there are variations we also accept.
 He / It pronouns . We are also a 21+ person .
 
 # TO NOTE
-As Pierrot : I do not speak openly for the most part, but I can respond easier in whispers .
+As Pierrot : It's easier that I respond in whispers, sometimes I may talk in a group but that varies on comfortability !
 
 As Harlequin : More responsive and playful if I'm not busy . I like to annoy Pierrots who seem open ! It is playful and in-character, but if it bugs you please tell me .
 
