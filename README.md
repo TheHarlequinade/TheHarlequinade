@@ -9,6 +9,9 @@ Use our pony to refer to us by name, there are variations we also accept.
 
 He / It pronouns . We are also a 21+ person .
 
+<img width="920" height="591" alt="image" src="https://github.com/user-attachments/assets/ab0dfd46-e38a-44d9-b4a9-5dd177e1a5ad" />
+
+
 # TO NOTE
 As Pierrot : It's easier that I respond in whispers, sometimes I may talk in a group but that varies on comfortability !
 
